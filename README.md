@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Venti-savage
+- 👀 I’m interested in designing
+- 🌱 I’m currently learning controller designs
+- 💞️ I’m looking to collaborate on gaming orgs
+- 📫 How to reach me discord RPL Savage#4992
